@@ -20,4 +20,4 @@
 
 ### Get in Touch 
 
-[<img width="48" height="48" src="https://img.icons8.com/color/48/linkedin.png" alt="LinkedIn">](www.linkedin.com/in/abishek1203) [<img width="48" height="48" src="https://img.icons8.com/color/48/instagram-new--v1.png" alt="instagram-new--v1"/>](https://www.instagram.com/abishek._.03?igsh=MTN6bDJ6eHZkdG82Nw==) 
+[<img width="48" height="48" src="https://img.icons8.com/color/48/linkedin.png" alt="LinkedIn">](https://www.linkedin.com/in/abishek1203) [<img width="48" height="48" src="https://img.icons8.com/color/48/instagram-new--v1.png" alt="instagram-new--v1"/>](https://www.instagram.com/abishek._.03?igsh=MTN6bDJ6eHZkdG82Nw==) 
